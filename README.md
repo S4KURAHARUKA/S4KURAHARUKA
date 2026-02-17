@@ -1,4 +1,4 @@
-## Hi there 👋
+I miss you *Whats.Sins* . **Its been 478 days since i seen you online on ponytown.** 
 
 <!--
 **S4KURAHARUKA/S4KURAHARUKA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
